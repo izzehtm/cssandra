@@ -1,4 +1,4 @@
-The results have been summarised in a Substack post. You can find the post here: https://substack.com/home/post/p-211954965
+The results have been summarised in a Substack post. You can find the post here: https://thepropagandaclinic.substack.com/p/analysis-comment-sections-as-propaganda-2e7
 
 Suggested workflow:
 
